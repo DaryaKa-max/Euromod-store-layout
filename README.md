@@ -1,0 +1,1 @@
+# Euromod-store-layout
